@@ -1,2 +1,0 @@
-# geluidsalvoos
-van media terroristen
